@@ -1,2 +1,2 @@
 # MyInfo
-Nguyen Thi Bich Ngoc @ntbngoc0069, student, @VAA Vietnam Aviation Academy
+Nguyen Thi Bich Ngoc @ntbngoc0069, student, @VN Vietnam
